@@ -17,7 +17,5 @@ njkjkbjhkbhjbjkmjnknk
 ```
 
 > hjbhjbhbhjj
->
->
 
 ![yuiuhuhi](/img/download.jpeg "ughuihguikhk")
